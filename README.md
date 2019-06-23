@@ -4,3 +4,4 @@
 
  
  
+![Animated GIF-downsized](https://user-images.githubusercontent.com/22521791/59970805-721e2f00-956f-11e9-8ab2-961c4c33c823.gif)
